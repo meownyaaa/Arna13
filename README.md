@@ -8,4 +8,4 @@ Currently meowing at reverse meowgineering and meow level meowing.
 Feel free to check my meows and contribute!
 <br><br>
 
-You can contact me at [arna13@arna13.net](mailto:arna13@arna13.net)
+You can contact me at [arna13@is-a-kitty.cat](mailto:arna13@is-a-kitty.cat)
